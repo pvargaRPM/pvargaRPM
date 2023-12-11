@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pvargaRPM✨
-- 👀 I’m interested in: the universe (42)
+- 👀 I’m interested in: the universe (42) ✌️🍹🏖️ 🐉💀
 - 🌱 I’m currently learning: Integrations
 - 💞️ I’m looking to collaborate on: Everything!
 - 📫 How to reach me: 734-673-1827
